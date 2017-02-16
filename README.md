@@ -1,0 +1,1 @@
+Sen hacker misin abi?
